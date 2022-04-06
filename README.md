@@ -1,0 +1,8 @@
+- 👋 Olá, eu sou @BrunoVianaGM
+- 👀 Estou em Curitiba-PR
+- 🌱 jogar futebol, escrever e correr
+- 💞️ ****************************
+- 📫 Hi, I’m @BrunoVianaGM
+- 👀 I'm in Curitiba-PR
+- 🌱 play football, write and run
+- *******************************
